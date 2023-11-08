@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **pmaleeshana7@gmail.com**
 
-- ⚡ Fun fact **I can laugh hard As F**
+- ⚡ Fun fact **I can laugh hard AF**
 <br><br>
 <h3 align="left">Connect with me:</h3>
 <p align="left">
